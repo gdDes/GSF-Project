@@ -1,0 +1,1 @@
+Hello, thank you for using the Game Setup Files. No copyright is used, change and alter the files as you see fit. 
